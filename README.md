@@ -1,1 +1,0 @@
-# shridevipharmacy2k21
